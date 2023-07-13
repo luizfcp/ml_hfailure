@@ -1,4 +1,4 @@
-## Sobrevivência de pacientes com Insuficiência Cardíaca ❤️
+## Insuficiência Cardíaca ❤️
 ---
 ```
 .
